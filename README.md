@@ -17,6 +17,4 @@ How are you ?
 HAVE A NICE DAY!!!
 welcome!!
 
-Enjoy The Life
-
-HAPPY BIRTHADAY
+How to achieve success in life ? 
